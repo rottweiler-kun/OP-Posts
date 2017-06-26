@@ -19,4 +19,6 @@ http://www.mediafire.com/?...
 >>88987 [b]Feral тред #1[/b]
 http://www.mediafire.com/?8q477g39d7z2772
 [spoiler]https://arhivach.org/thread/29867/[/spoiler]
+
+Архив всех тредов на Меге: https://mega.nz/#F!nEIRHbTQ!KkOqbnh_QS6QluXvMpQikg
 ```
