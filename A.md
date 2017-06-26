@@ -7,7 +7,7 @@
 Архивы предыдущих тредов:
 
 >>147782 [b]Коротких анимаций тред #2[/b]
-http://www.mediafire.com/?......
+http://www.mediafire.com/?...
 [spoiler]http://arhivach.org/thread/....../[/spoiler]
 
 >>92665 [b]Анимаций тред всех полов #1[/b]
