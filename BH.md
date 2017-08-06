@@ -6,7 +6,7 @@
 Архивы предыдущих тредов:
 
 >>156186 [b]ФУРРИ БУГУРТ ТРЕД #3[/b]
-http://www.mediafire.com/?...
+http://www.mediafire.com/?.....
 [spoiler]http://arhivach.org/thread/....../[/spoiler]
 
 >>134259 [b]ФУРРИ БУГУРТ ТРЕД #2[/b]
