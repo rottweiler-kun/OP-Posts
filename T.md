@@ -40,7 +40,7 @@ http://www.mediafire.com/?4c0pr1a2vcvl0qa
 [spoiler]http://arhivach.org/thread/57600/[/spoiler]
 
 [b]Няшки М, М/М #1[/b]
-[spoiler]Прослоупочен и проёбан[/spoiler]
+http://www.mediafire.com/?aq2qdtb9ornzc89
 
 Архивы всех тредов на Меге: https://mega.nz/#F!mEpCEICA!9ZzL7gX3TK-Qso-ZxE-uow
 ```
