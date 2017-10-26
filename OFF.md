@@ -46,7 +46,7 @@
 ```
 Актуализированный [spoiler]текстовый[/spoiler] архив всех предыдущих официальных тредов:
 [b]http://www.mediafire.com/?umpa1gbunc2uuz7[/b]
-[b]https://mega.nz/#!2ZRWRRTT!W7JJXAGuWrIJGZqgmbtFdjiSTG6tKUbt_MRHUsrrNKQ[/b]
+[b]https://mega.nz/#!zQZnkS7S!S9fJaPaWAPjWKftKDyf55IXctBRp0fVk9hcmxs-Ta-c[/b]
 
 Архив предыдущего официального треда ([b]2.5.1[/b]) с фуллсайз пичками (что удалось спасти после жополапой попытки сделать циклический тред):
 [b]https://www.mediafire.com/?a48lyv858sxvcso[/b]
