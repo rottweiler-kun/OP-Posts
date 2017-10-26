@@ -7,9 +7,13 @@
 
 Архивы предыдущих тредов [spoiler]вычищены дубликаты, пиканрилейтед и совсем уж ультрахардкорный гуропиздец[/spoiler]:
 
+>>161250 [b]BDSM #5[/b]
+http://www.mediafire.com/?...
+[spoiler]http://arhivach.org/thread/....../[/spoiler]
+
 >>137334 [b]BDSM #4[/b]
-http://www.mediafire.com/?.....
-[spoiler]http://arhivach.org/thread/...[/spoiler]
+http://www.mediafire.com/?dtajw7vm9t4x4b5
+[spoiler]http://arhivach.org/thread/305923/[/spoiler]
 
 >>101890 [b]BDSM #3[/b]
 http://www.mediafire.com/?4jx7cept28821c9
@@ -22,4 +26,8 @@ https://www.mediafire.com/?t6612afy1lyatc7
 [b]BDSM #1[/b]
 https://www.mediafire.com/?phxb62cbi96fn6d
 [spoiler]http://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html[/spoiler]
+
+Архив всех тредов на Меге:
+https://mega.nz/#F!KUZ01ZLD!JL-YJE_9KdS9kl-5rmvQ8A
+
 ```
