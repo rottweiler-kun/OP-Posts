@@ -22,14 +22,14 @@
 Значимые сторонние борды:
 
 - https://u18chan[точка]com - наиболее активная из существующих борд, где аноны регулярно доставляют свежую годноту, в том числе платную.
-- http://lulz.net/furi/ - /б/ форчана с фурфагами и каруселями. http://lulzcatalog.cu.cc - сторонний каталог.
-- https://8ch[точка]net/furry/ и https://8ch[точка]net/fur/ - вторая по значимости борда.
+- http://lulz.net/furi/ - /б/ форчана с фурфагами и каруселями.
+- https://8ch[точка]net/furry/ и https://8ch[точка]net/fur/ .
 - http://www.reddit.com/r/furry/ http://www.reddit.com/r/yiff - реддит как он есть.
 
 Полезные утилки:
 
 - http://pastebin.com/u/lulzScript - полезные скрипты для фурёвых сайтов.
-- https://github.com/catgirlfighter/nekopaw/ - граббер, родная и няшная котолапа.
+- https://github.com/catgirlfighter/nekopaw - граббер, родная и няшная котолапа.
 - https://code.google.com/p/imgbrd-grabber/ - граббер помощнее и не такой няшный.
 - https://www.jzab.de/content/tumblthree - граббер для тумблера.
 - https://github.com/Nandaka/PixivUtil2 - граббер для пиксива.
@@ -39,9 +39,8 @@
 
 Постепенно пилящийся многабукав гайд по 42 от стороннего анона: https://github.com/rottweiler-kun/furfaq
 
-Прошлый тред >>140198
-
-[spoiler] Шаблон: https://www.penflip.com/2ch.adult.anon/fur-request-head [/spoiler]
+Прошлый тред >>146073
+Шаблон: https://www.penflip.com/2ch.adult.anon/fur-request-head
 ```
 ---
 ```
@@ -49,11 +48,11 @@
 [b]http://www.mediafire.com/?umpa1gbunc2uuz7[/b]
 [b]https://mega.nz/#!2ZRWRRTT!W7JJXAGuWrIJGZqgmbtFdjiSTG6tKUbt_MRHUsrrNKQ[/b]
 
-Архив предыдущего официального треда ([b]2.[s]5[/s]6[/b]) с фуллсайз пичками (что удалось спасти после криворукой попытки модератора сделать циклический тред):
+Архив предыдущего официального треда ([b]2.5.1[/b]) с фуллсайз пичками (что удалось спасти после жополапой попытки сделать циклический тред):
 [b]https://www.mediafire.com/?a48lyv858sxvcso[/b]
 [spoiler]http://arhivach.org/thread/266885/[/spoiler]
 
-Архив предыдущего официального треда ([b]2.5[/b]) с фуллсайз пичками:
+Архив предыдущего треда ([b]2.5[/b]) с фуллсайз пичками:
 [b]http://www.mediafire.com/?1eudpg51g8rbins[/b]
 [spoiler]http://arhivach.org/thread/240309/[/spoiler]
 
