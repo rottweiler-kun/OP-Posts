@@ -52,7 +52,7 @@
 [b]https://www.mediafire.com/?a48lyv858sxvcso[/b]
 [spoiler]http://arhivach.org/thread/266885/[/spoiler]
 
-Архив предыдущего треда ([b]2.5[/b]) с фуллсайз пичками:
+Архив предыдущего треда [b]2.5[/b] с фуллсайз пичками:
 [b]http://www.mediafire.com/?1eudpg51g8rbins[/b]
 [spoiler]http://arhivach.org/thread/240309/[/spoiler]
 
