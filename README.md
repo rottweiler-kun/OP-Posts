@@ -16,9 +16,9 @@
   * Архивы тредов на Архиваче: [1](http://arhivach.org/thread/122270/), 2
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!6VpgSIaC!ql_jPT1lHjdC-oWsp_GCxQ)
 * __[BDSM тред](B.md)__
-  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?phxb62cbi96fn6d), [2](http://www.mediafire.com/?t6612afy1lyatc7), [3](http://www.mediafire.com/?4jx7cept28821c9), [4](http://www.mediafire.com/?dtajw7vm9t4x4b5), 5
-  * Архивы тредов на Архиваче: [1](http://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html), [2](http://arhivach.org/thread/72491/), [3](http://arhivach.org/thread/122272/), [4](http://arhivach.org/thread/305923/), 5
-  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!KUZ01ZLD!JL-YJE_9KdS9kl-5rmvQ8A)
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?phxb62cbi96fn6d), [2](http://www.mediafire.com/?t6612afy1lyatc7), [3](http://www.mediafire.com/?4jx7cept28821c9), [4](http://www.mediafire.com/?dtajw7vm9t4x4b5), 5
+  * Архивы тредов на Архиваче: [1](http://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html), [2](http://arhivach.org/thread/72491/), [3](http://arhivach.org/thread/122272/), [4](http://arhivach.org/thread/305923/), 5
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!KUZ01ZLD!JL-YJE_9KdS9kl-5rmvQ8A)
 * __[Секс-игрушек тред](BD.md)__
 * __[ButtHurt тред](BH.md)__
 * __[Clean тред](C.md)__
