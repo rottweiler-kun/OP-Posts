@@ -74,8 +74,17 @@
   * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122280/), [2](http://arhivach.cf/thread/162029/), 3
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!zB5GRBiT!H-exeMvqc3E7dDx5sdUsJA)
 * __[Няшек-фурняшек тред](T.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?aq2qdtb9ornzc89), [2](http://www.mediafire.com/?4c0pr1a2vcvl0qa), [3](http://www.mediafire.com/?3qa9iooma15wzuk), [4](http://www.mediafire.com/?vxkun3ss67wg275), [5](http://www.mediafire.com/?3dv9rnc6emy8vn5), [6](http://www.mediafire.com/?e2x9x9c566ew680), [7](http://www.mediafire.com/?424dgyjpg1s3o60), [8](http://www.mediafire.com/?qvmc7cdj44z0zz5), 9
+  * Архивы тредов на Архиваче: 1, [2](https://arhivach.cf/thread/57600/), [3](https://arhivach.cf/thread/64606/), [4](https://arhivach.cf/thread/64603/), [5](https://arhivach.cf/thread/64594/), [6](https://arhivach.cf/thread/104444/), [7](https://arhivach.cf/thread/122276/), [8](https://arhivach.cf/thread/316993/), 9
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!mEpCEICA!9ZzL7gX3TK-Qso-ZxE-uow)
 * __[Мультиков и сериалов тред](TOONS.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?z4z4a5tr2qcg8ra), 2
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/50757/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!WVBHjbRC!j07xBaWP7uxWQfWxTI_Emw)
 * __[Древних цивилизаций тред](TRIBAL.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?kxa7aup3tk20sv1), 2
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/229143/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!mF4CTZyQ!cPxmWQq_i9g0TfIxtBV0aA)
 
 ---
 
