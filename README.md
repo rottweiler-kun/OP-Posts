@@ -20,7 +20,7 @@
   * Архивы тредов на Архиваче: [1](http://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html), [2](http://arhivach.cf/thread/72491/), [3](http://arhivach.cf/thread/122272/), [4](http://arhivach.cf/thread/305923/), 5
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!KUZ01ZLD!JL-YJE_9KdS9kl-5rmvQ8A)
 * __[Секс-игрушек тред](BD.md)__
-  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?d63d7yj1e3uvne1), [2](http://www.mediafire.com/?hi4h7lh5qlaiqqo), [3](https://www.mediafire.com/?4gxnlh11bywjt7d), [4](https://www.mediafire.com/?d0oeq901wdvytqm), [5](https://www.mediafire.com/?7v0i76ri6pqzpab), [6(txt only)](https://www.mediafire.com/?cujlqwzkl48ccis), 7
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?d63d7yj1e3uvne1), [2](http://www.mediafire.com/?hi4h7lh5qlaiqqo), [3](https://www.mediafire.com/?4gxnlh11bywjt7d), [4](https://www.mediafire.com/?d0oeq901wdvytqm), [5](https://www.mediafire.com/?7v0i76ri6pqzpab), [6(_txt_)](https://www.mediafire.com/?cujlqwzkl48ccis), 7
   * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/165088/), [2](http://arhivach.cf/thread/207822/), [3](http://arhivach.cf/thread/271354/), [4](http://arhivach.cf/thread/292961/), [5](http://arhivach.cf/thread/320310/), 6, [7](https://arhivach.cf/thread/325521/)
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!eMJilZZQ!Fxow6RuB9UUPwfJBZa4jng)
 * __[ButtHurt тред](BH.md)__
