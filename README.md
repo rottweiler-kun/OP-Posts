@@ -24,8 +24,21 @@
   * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/165088/), [2](http://arhivach.cf/thread/207822/), [3](http://arhivach.cf/thread/271354/), [4](http://arhivach.cf/thread/292961/), [5](http://arhivach.cf/thread/320310/), 6, [7](https://arhivach.cf/thread/325521/)
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!eMJilZZQ!Fxow6RuB9UUPwfJBZa4jng)
 * __[ButtHurt тред](BH.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?mr7b8nbqbty3nxy), [2](http://www.mediafire.com/?zdp04lr0bw44qlc), [3](https://www.mediafire.com/?6mdxhrzgw75432w), 4
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/188432/), [2](http://arhivach.cf/thread/284411/), [3](http://arhivach.cf/thread/325226/), [4](http://arhivach.cf/thread/328824/)
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!7ZR3GboT!DjcDdDDuyQGxBUSmUT2rUA)
 * __[Clean тред](C.md)__
+  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?xlxaptdmtt7u6yt), [2](https://www.mediafire.com/?4nv2o8baoax2qc4), [3](https://www.mediafire.com/?popirqw0y9qu7vb), [4](http://www.mediafire.com/?ud76kcwnws4fw4s), [5](https://www.mediafire.com/?vdntftobn3v4krw), 6
+  * Архивы тредов на Архиваче: [1](https://arhivach.cf/thread/72494/), [2](https://arhivach.cf/thread/92389/), [3](http://arhivach.cf/thread/122273/), [4](http://arhivach.cf/thread/190144/), [5](http://arhivach.cf/thread/256499/), 6
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!GVQlBIaK!XWy0g2TceJAZofNnfcyjAQ)
 * __[Фуррёвых комиксов тред](COM.md)__
+  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?u85gavck2dma9rj) [1(light)](https://www.mediafire.com/?6mdkx2m15xab81e), 2
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/144197/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!nUwViQpS!QZKhRcUItwdicPaa6K4lDA)
+* __[Койотов тред](COY.md)__
+  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?k99al4j22x2kb74), 2
+  * Архивы тредов на Архиваче: [1](https://arhivach.cf/thread/193506/), [2](https://arhivach.cf/thread/325489/)
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!7AwjgDzQ!BCDM8p3rnsrZK3Gn1iO_HQ)
 * __[Милоты и няшности тред](CUTE.md)__
 * _[Фентези и Средневековья тред](FANT.md)_
 * __[Feral тред](FERAL.md)__ - _нелегитимный_ и _официальный_ в одном флаконе
@@ -43,7 +56,6 @@
 
 ### Будущие ~~призывники~~ новобранцы, ещё не познавшие бамплимита:
 
-* _[Койотов тред](COY.md)_
 * _[Гиен тред](HY.md)_
 * __[Римминга тред](RIM.md)__
 * _[Фетишизма тред](FET.md)_
