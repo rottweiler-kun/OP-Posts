@@ -40,10 +40,23 @@
   * Архивы тредов на Архиваче: [1](https://arhivach.cf/thread/193506/), [2](https://arhivach.cf/thread/325489/)
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!7AwjgDzQ!BCDM8p3rnsrZK3Gn1iO_HQ)
 * __[Милоты и няшности тред](CUTE.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?wz70ft14nq7oqlb), 2
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/96436/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!3FJmGa5D!Whmm8RtprCnreOzMGW8cfQ)
 * _[Фентези и Средневековья тред](FANT.md)_
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!mVIjlaLC!gvbOnOuzy0w7-i8kCM0H8g)
 * __[Feral тред](FERAL.md)__ - _нелегитимный_ и _официальный_ в одном флаконе
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?8q477g39d7z2772), [2(легитимный)](http://www.mediafire.com/?1zk0fmrfboj5j9p), [2(нелегитимный)](http://www.mediafire.com/?u99jyqm4vse3yzc), 3
+  * Архивы тредов на Архиваче: [1](https://arhivach.cf/thread/29867/), [2(легитимный)](http://arhivach.cf/thread/312698/), [2(нелегитимный)](http://arhivach.cf/thread/312697/), 3
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!nEIRHbTQ!KkOqbnh_QS6QluXvMpQikg)
 * __[Йумора тред](FUN.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?452rjkz4gfbnltk), [2](http://www.mediafire.com/?w1iu72c5zc79bcs), [3](http://www.mediafire.com/?4c3b9y2t0t13kn4), 4
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/188211/), [2](https://arhivach.cf/thread/240306/), [3](http://arhivach.cf/thread/306606/), 4
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!qYZSgYpR!cu7zaVcJy_pDZluWi57cwQ)
 * __[Человекоебли тред](HUM.md)__
+  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?awuee9nv0ycr2t2), [1(зеркало на Mega.nz)](https://mega.nz/#!R4pW1ADb!rufNFF4hOFoSnL5FpLH4SG8lNnW1AGqepORymmJUMvU), 2
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122269/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!nUBikS4I!X3xWNav7Bo0re6Tj3d69cQ)
 * __[Качей-дилфачей тред](M.md)__
 * __[Обычных самцов тред](N.md)__
 * __[Оргий тред](O.md)__
