@@ -58,9 +58,21 @@
   * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122269/), 2
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!nUBikS4I!X3xWNav7Bo0re6Tj3d69cQ)
 * __[Качей-дилфачей тред](M.md)__
+  * Архивы тредов на MediaFire: 1, 2, 3, [4](http://www.mediafire.com/?dn55xnca5xut6bx), [5](http://www.mediafire.com/?ecccacshah1t0c0), [6](http://www.mediafire.com/?2wfwetpxg29afd9), [7](http://www.mediafire.com/?40fryjah4ugc85m), [8](http://www.mediafire.com/?6qa9iq02n2nzusz), 9
+  * Архивы тредов на Архиваче: 1, 2, 3, [4](http://arhivach.cf/thread/58563/), [5](http://arhivach.cf/thread/58560/), [6](http://arhivach.cf/thread/122277/), [7](http://arhivach.cf/thread/242021/), [8](https://arhivach.cf/thread/301991/), [9](https://arhivach.cf/thread/325523/)
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!XFox2brL!g6FIuzrtRkcbEAaokNhu5Q)
 * __[Обычных самцов тред](N.md)__
+  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?q307w8ue6pnuwg2), 2
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122275/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!WIwxxKaY!1pfLq_5Pnm0H5cjXVSbMyA)
 * __[Оргий тред](O.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?wbj9ldk5qe0y6a8/), 2
+  * Архивы тредов на Архиваче: [1](https://arhivach.cf/thread/111308/), 2
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!fAA0BCJY!snPLnPS_D7fmp3SQj6HufA)
 * __[Пушистой науки тред](SCI.md)__
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?oo1uutfq1k37ilm), [2](http://www.mediafire.com/?s6zfmp46w9z906b), 3
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122280/), [2](http://arhivach.cf/thread/162029/), 3
+  * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!zB5GRBiT!H-exeMvqc3E7dDx5sdUsJA)
 * __[Няшек-фурняшек тред](T.md)__
 * __[Мультиков и сериалов тред](TOONS.md)__
 * __[Древних цивилизаций тред](TRIBAL.md)__
