@@ -9,25 +9,29 @@
 
 Архивы предыдущих тредов:
 
->>146521 [b]КАЧИ-ДИЛФАЧИ #8 [BATYA edition] (M, M/M, M/M/...)[/b]
+>>165640 [b]КАЧИ-ДИЛФАЧИ #9 (M, M/M, M/M/...) [QUOSMATIQUE edition][/b]
 http://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/....../[/spoiler]
+[spoiler]https://arhivach.cf/thread/325523/[/spoiler]
+
+>>146521 [b]КАЧИ-ДИЛФАЧИ #8 [BATYA edition] (M, M/M, M/M/...)[/b] пал жертвой невыясненных обстоятельств.
+http://www.mediafire.com/?6qa9iq02n2nzusz
+[spoiler]https://arhivach.cf/thread/301991/[/spoiler]
 
 >>127209 [b]КАЧИ-ДИЛФАЧИ #7 (M, M/M, M/M/M etc)[/b]
 http://www.mediafire.com/?40fryjah4ugc85m
-[spoiler]http://arhivach.org/thread/242021/[/spoiler]
+[spoiler]http://arhivach.cf/thread/242021/[/spoiler]
 
 >>98899 [b]M, M/M, M/M/M тред #6[/b]
 http://www.mediafire.com/?2wfwetpxg29afd9
-[spoiler]http://arhivach.org/thread/122277/[/spoiler]
+[spoiler]http://arhivach.cf/thread/122277/[/spoiler]
 
 [b]M, M/M, M/M/M тред #5[/b]
 http://www.mediafire.com/?ecccacshah1t0c0
-[spoiler]http://arhivach.org/thread/58560/[/spoiler]
+[spoiler]http://arhivach.cf/thread/58560/[/spoiler]
 
 [b]М, M/M, M/M/M, etc #4[/b]
 http://www.mediafire.com/?dn55xnca5xut6bx
-[spoiler]http://arhivach.org/thread/58563/[/spoiler]
+[spoiler]http://arhivach.cf/thread/58563/[/spoiler]
 
 Архивы первых трёх тредов безвозвратно продрочены.
 
