@@ -12,11 +12,11 @@
 
 >>142918 [b]Обычных самцов тред #2 (M, M/M, M/M/...)[/b]
 https://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/......[/spoiler]
+[spoiler]http://arhivach.cf/thread/......[/spoiler]
 
 >>104515 [b]Generic male тред #1 (clean, M, M/M, M/M/M/...)[/b]
 https://www.mediafire.com/?q307w8ue6pnuwg2
-[spoiler]http://arhivach.org/thread/122275/[/spoiler]
+[spoiler]http://arhivach.cf/thread/122275/[/spoiler]
 
 Архивы всех тредов на Меге: https://mega.nz/#F!WIwxxKaY!1pfLq_5Pnm0H5cjXVSbMyA
 ```
