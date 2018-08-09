@@ -20,15 +20,15 @@ http://scholar.google.com/scholar?as_q=&as_sauthors=KC+Gerbasi - публика�
 
 >>153551 [b]Пушистая наука #3[/b]
 http://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/.../[/spoiler]
+[spoiler]http://arhivach.cf/thread/.../[/spoiler]
 
 >>122544 [b]Furries & Science тред #2[/b]
 http://www.mediafire.com/?s6zfmp46w9z906b
-[spoiler]http://arhivach.org/thread/162029/[/spoiler]
+[spoiler]http://arhivach.cf/thread/162029/[/spoiler]
 
 [b]Furries & Science тред #1[/b]
 http://www.mediafire.com/?oo1uutfq1k37ilm
-[spoiler]http://arhivach.org/thread/122280/[/spoiler]
+[spoiler]http://arhivach.cf/thread/122280/[/spoiler]
 
 Архивы всех тредов на Меге: https://mega.nz/#F!zB5GRBiT!H-exeMvqc3E7dDx5sdUsJA
 ```
