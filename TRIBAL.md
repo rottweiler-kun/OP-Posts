@@ -9,11 +9,11 @@
 
 >>143815 [b]Древних цивилизаций и первобытных племён тред #2[/b]
 http://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/....../[/spoiler]
+[spoiler]http://arhivach.cf/thread/....../[/spoiler]
 
 >>44191 [b]Древние цивилизации #1[/b]
 http://www.mediafire.com/?kxa7aup3tk20sv1
-[spoiler]http://arhivach.org/thread/229143/[/spoiler]
+[spoiler]http://arhivach.cf/thread/229143/[/spoiler]
 
 Архивы всех тредов на Меге: https://mega.nz/#F!mF4CTZyQ!cPxmWQq_i9g0TfIxtBV0aA
 ```
