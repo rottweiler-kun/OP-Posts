@@ -1,4 +1,4 @@
-# Единый учебник пушистой литературы #1
+# Единый учебник пушистой литературы #2
 
 ```
 
@@ -49,5 +49,5 @@
 
 >>138009 [b]Единый учебник пушистой литературы[/b]
 http://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/.../[/spoiler]
+[spoiler]http://arhivach.cf/thread/.../[/spoiler]
 ```
