@@ -1,21 +1,23 @@
 # Комиксов тред #3
 
 ```
-Тред обсуждения комиксов номер два.В треде обсуждаем годные [spoiler]и не очень[/spoiler] обычные комиксы, BD и веб-комиксы. Делимся впечатлениями, пишем рецензии, не забываем давать ссылки.
+Тред обсуждения комиксов номер два.
+В треде обсуждаем годные [spoiler]и не очень[/spoiler] обычные комиксы, BD и веб-комиксы. Делимся впечатлениями, пишем рецензии, не забываем давать ссылки.
+
 Большой список фурри-комиксов: http://new.belfrycomics.net/view/all/Show+All
-Годная спискота на тропах [spoiler]могут попадаться спойлеры[/spoiler]: http://tvtropes.org/pmwiki/pmwiki.php/Main/FurryWebcomics
+Годная спискота на тропах [spoiler]могут попадаться спойлеры[/spoiler]: http://tvtropes.org/pmwiki/pmwiki.php/Main/FurryWebcomics 
 
 Архивы предыдущих тредов:
 
 >>115958 [b]Веб-комиксов и простокомиксов тред #2[/b]
 https://www.mediafire.com/?...
 https://www.mediafire.com/?... (light version)
-[spoiler]https://arhivach.org/thread/...[/spoiler]
+[spoiler]https://arhivach.cf/thread/...[/spoiler]
 
 >>112040 [b]Веб-комиксов и простокомиксов тред #1[/b]
 https://www.mediafire.com/?u85gavck2dma9rj 
 https://www.mediafire.com/?6mdkx2m15xab81e (light version)
-[spoiler]http://arhivach.org/thread/144197/[/spoiler]
+[spoiler]http://arhivach.cf/thread/144197/[/spoiler]
 ```
 ___
 ```
@@ -103,6 +105,37 @@ Table of contents второго треда >>115958 часть 1 из ?
 ___
 ```
 Table of contents второго треда >>115958 часть 2 из ?
->>.....
->>.....
+
+>>137294 >>137295 >>137296 Back in the Lead
+>>138531 Pulling Weeds
+>>140800 Delirium
+>>142053 Open Road
+>>142501 Zebra Dad and Boss Lamb
+>>142540 Sign Up
+>>142915 Greenaline
+>>143286 >>143287 Summers Gone
+>>143334 OFF-WHITE
+>>144754 The Internship
+>>148258 >>148259 The Boss (CYOA)
+>>148974 La Guilde
+>>154862 CATastrophe
+>>159388 >>159389 Hitting the Showers 1
+>>159390 >>159391 Hitting the Showers 2
+>>160181 The PigPen
+>>160740 Chacal el Chacal
+>>161965 Colapaw/OpaWolf/Diesel comic
+>>162347 Диптих
+>>162349 Two and The City
+>>169854 Замкадыши
+>>169870 Kennel Block Blues
+>>171498 Mouse Guard
 ```
+___
+```
+Table of contents второго треда >>115958 часть 3 из ?
+
+>>173773 Save it for the Bedroom
+>>173853 LOVE
+>>176613 Out-of-placers
+>>.....
+
