@@ -9,11 +9,11 @@
 
 >>110233 [b]Оргий тред #2: (F/F/+, M/M/+ M/F/+, F/H/+, M/H/+M, H/H/+ etc)[/b]
 http://www.mediafire.com/?...
-[spoiler]https://arhivach.org/thread/....../[/spoiler]
+[spoiler]https://arhivach.cf/thread/....../[/spoiler]
 
 >>41940 [b]Оргий тред #1: F/F/F, M/M/M M/M/F, F/F/M, H/M/M, H/H/F, etc.[/b]
 http://www.mediafire.com/?wbj9ldk5qe0y6a8/
-[spoiler]https://arhivach.org/thread/111308/[/spoiler]
+[spoiler]https://arhivach.cf/thread/111308/[/spoiler]
 
 Архив всех тредов на Меге: https://mega.nz/#F!fAA0BCJY!snPLnPS_D7fmp3SQj6HufA
 ```
