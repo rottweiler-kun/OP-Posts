@@ -11,11 +11,11 @@
 
 >>162091 [b]Мультиков и сериалов тред #2[/b]
 http://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/....../[/spoiler]
+[spoiler]http://arhivach.cf/thread/....../[/spoiler]
 
 >>84663 [b]Анимации тред #1[/b]
 http://www.mediafire.com/?z4z4a5tr2qcg8ra
-[spoiler]http://arhivach.org/thread/50757/[/spoiler]
+[spoiler]http://arhivach.cf/thread/50757/[/spoiler]
 
 Архивы всех тредов на Меге: https://mega.nz/#F!WVBHjbRC!j07xBaWP7uxWQfWxTI_Emw
 
