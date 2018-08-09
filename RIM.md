@@ -1,4 +1,4 @@
-# Аннилингуса тред #2
+# Популизаторства тред #2
 
 ```
 
@@ -9,5 +9,5 @@
 
 >>108405 [b]Rimming тред #1[/b]
 http://www.mediafire.com/?...
-[spoiler]https://arhivach.org/thread/....../[/spoiler]
+[spoiler]https://arhivach.cf/thread/....../[/spoiler]
 ```
