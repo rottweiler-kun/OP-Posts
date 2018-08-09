@@ -1,4 +1,4 @@
-# Официальный тред 2.6
+# Официальный тред 2.6.1
 ```
 Официальный тред глупых вопросов и безутешных поисков, осуществляем их здесь. Для облегчения сего занятия немного инфы.
 
@@ -48,21 +48,35 @@
 [b]http://www.mediafire.com/?umpa1gbunc2uuz7[/b]
 [b]https://mega.nz/#!zQZnkS7S!S9fJaPaWAPjWKftKDyf55IXctBRp0fVk9hcmxs-Ta-c[/b]
 
-Архив предыдущего официального треда ([b]2.5.1[/b]) с фуллсайз пичками (что удалось спасти после жополапой попытки сделать циклический тред):
+Архив предыдущего официального треда ([b]2.7[/b]) с фуллсайз пичками:
+[b]https://www.mediafire.com/?...[/b]
+[spoiler]https://arhivach.cf/thread/307514/[/spoiler]
+
+Архив официального треда [b]2.6.1[/b] с фуллсайз пичками:
+[b]https://www.mediafire.com/?kct00qopanzp91t[/b]
+[spoiler]https://arhivach.cf/thread/307514/[/spoiler]
+
+Архив официального треда [b]2.5.1[/b] с фуллсайз пичками (частично спасёнными):
 [b]https://www.mediafire.com/?a48lyv858sxvcso[/b]
-[spoiler]http://arhivach.org/thread/266885/[/spoiler]
+[spoiler]http://arhivach.cf/thread/266885/[/spoiler]
 
 Архив официального треда [b]2.5[/b] с фуллсайз пичками:
 [b]http://www.mediafire.com/?1eudpg51g8rbins[/b]
-[spoiler]http://arhivach.org/thread/240309/[/spoiler]
+[spoiler]http://arhivach.cf/thread/240309/[/spoiler]
 
 Архив официального треда [b]2.4[/b] с фуллсайз пичками:
 [b]http://www.mediafire.com/?xh9gf8zqbb26cig[/b]
-[spoiler]https://arhivach.org/thread/203033/[/spoiler]
+[spoiler]https://arhivach.cf/thread/203033/[/spoiler]
 
 Архив официального треда [b]2.3[/b] с фуллсайз пичками:
 [b]http://www.mediafire.com/?bik9j862dk6gmqi[/b]
-[spoiler]https://arhivach.org/thread/174295/[/spoiler]
+[spoiler]https://arhivach.cf/thread/174295/[/spoiler]
+
+Архив официального треда [b]2.2[/b] с фуллсайз пичками:
+[b]http://www.mediafire.com/?u10qilq5oegw0km[/b]
+[spoiler]https://arhivach.cf/thread/122283/[/spoiler]
+
+Архивы предыдущих тредов сохранились только в текстовом виде.
 
 Зеркало на Меге: [b]https://mega.nz/#F!vY5h2bxB!zw0o2i4czJqVl0OxlNJL1g[/b]
 ```
