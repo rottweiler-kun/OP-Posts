@@ -24,8 +24,8 @@
   * Архивы тредов на Архиваче: [1](http://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html), [2](http://arhivach.cf/thread/72491/), [3](http://arhivach.cf/thread/122272/), [4](http://arhivach.cf/thread/305923/), 5
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!KUZ01ZLD!JL-YJE_9KdS9kl-5rmvQ8A)
 * __[Секс-игрушек тред](BD.md)__
-  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?d63d7yj1e3uvne1), [2](http://www.mediafire.com/?hi4h7lh5qlaiqqo), [3](https://www.mediafire.com/?4gxnlh11bywjt7d), [4](https://www.mediafire.com/?d0oeq901wdvytqm), [5](https://www.mediafire.com/?7v0i76ri6pqzpab), [6(_txt_)](https://www.mediafire.com/?cujlqwzkl48ccis), 7
-  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/165088/), [2](http://arhivach.cf/thread/207822/), [3](http://arhivach.cf/thread/271354/), [4](http://arhivach.cf/thread/292961/), [5](http://arhivach.cf/thread/320310/), 6, [7](https://arhivach.cf/thread/325521/)
+  * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?d63d7yj1e3uvne1), [2](http://www.mediafire.com/?hi4h7lh5qlaiqqo), [3](https://www.mediafire.com/?4gxnlh11bywjt7d), [4](https://www.mediafire.com/?d0oeq901wdvytqm), [5](https://www.mediafire.com/?7v0i76ri6pqzpab), [6(_txt_)](https://www.mediafire.com/?cujlqwzkl48ccis), [7](https://www.mediafire.com/?2y3tcc69dljvib7), 8
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/165088/), [2](http://arhivach.cf/thread/207822/), [3](http://arhivach.cf/thread/271354/), [4](http://arhivach.cf/thread/292961/), [5](http://arhivach.cf/thread/320310/), 6, [7](https://arhivach.cf/thread/325521/), 8
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!eMJilZZQ!Fxow6RuB9UUPwfJBZa4jng)
 * __[ButtHurt тред](BH.md)__
   * Архивы тредов на MediaFire: [1](http://www.mediafire.com/?mr7b8nbqbty3nxy), [2](http://www.mediafire.com/?zdp04lr0bw44qlc), [3](https://www.mediafire.com/?6mdxhrzgw75432w), 4
@@ -58,8 +58,8 @@
   * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/188211/), [2](https://arhivach.cf/thread/240306/), [3](http://arhivach.cf/thread/306606/), 4
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!qYZSgYpR!cu7zaVcJy_pDZluWi57cwQ)
 * __[Человекоебли тред](HUM.md)__
-  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?awuee9nv0ycr2t2), [1(_зеркало_)](https://mega.nz/#!R4pW1ADb!rufNFF4hOFoSnL5FpLH4SG8lNnW1AGqepORymmJUMvU), 2
-  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122269/), 2
+  * Архивы тредов на MediaFire: [1](https://www.mediafire.com/?awuee9nv0ycr2t2), [1(_зеркало_)](https://mega.nz/#!R4pW1ADb!rufNFF4hOFoSnL5FpLH4SG8lNnW1AGqepORymmJUMvU), [2](https://www.mediafire.com/?5qx1e7e3o3c7us5), 3
+  * Архивы тредов на Архиваче: [1](http://arhivach.cf/thread/122269/), [2](http://arhivach.cf/thread/233011/), 3
   * [Архивы всех тредов на Mega.nz](https://mega.nz/#F!nUBikS4I!X3xWNav7Bo0re6Tj3d69cQ)
 * __[Качей-дилфачей тред](M.md)__
   * Архивы тредов на MediaFire: 1, 2, 3, [4](http://www.mediafire.com/?dn55xnca5xut6bx), [5](http://www.mediafire.com/?ecccacshah1t0c0), [6](http://www.mediafire.com/?2wfwetpxg29afd9), [7](http://www.mediafire.com/?40fryjah4ugc85m), [8](http://www.mediafire.com/?6qa9iq02n2nzusz), 9
