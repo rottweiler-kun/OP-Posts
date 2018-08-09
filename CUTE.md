@@ -9,11 +9,11 @@
 
 >>123753 [b]Милого, няшного контента тред #2[/b]
 http://www.mediafire.com/?...
-[spoiler]http://arhivach.org/thread/.../[/spoiler]
+[spoiler]http://arhivach.cf/thread/.../[/spoiler]
 
 >>39210 [b]Милого, няшного контента тред #1[/b]
-http://www.mediafire.com/?wz70ft14nq7oqlb (безжалостно почищенный от всякой [s]порой весьма годной, но не подходящей к тематике треда[/s] скабрёзности [spoiler]запихнутой в отдельный каталог[/spoiler])
-[spoiler]http://arhivach.org/thread/96436/[/spoiler]
+http://www.mediafire.com/?wz70ft14nq7oqlb (безжалостно почищенный от всякой скабрёзности [spoiler]которая лежит в отдельной папке[/spoiler])
+[spoiler]http://arhivach.cf/thread/96436/[/spoiler]
 
 Архив всех тредов на Меге: https://mega.nz/#F!3FJmGa5D!Whmm8RtprCnreOzMGW8cfQ
 ```
