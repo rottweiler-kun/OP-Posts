@@ -11,8 +11,8 @@
 ### Готовые шапки для ~~переярков~~ выдержавших как минимум один перекат тредов:
 
 * __[Официальный прикреплённый тред](OFF.md)__ - хотя создавать и редактировать её может только модератор
-  * Архивы тредов (по версиям) на MediaFire: 1.0, 2.0, 2.1, [2.2](http://www.mediafire.com/?u10qilq5oegw0km), [2.3](http://www.mediafire.com/?bik9j862dk6gmqi), [2.4](http://www.mediafire.com/?xh9gf8zqbb26cig), [2.5](http://www.mediafire.com/?1eudpg51g8rbins), [2.5.1](https://www.mediafire.com/?a48lyv858sxvcso), [2.6.1](https://www.mediafire.com/?kct00qopanzp91t), 2.7
-  * Архивы тредов (по версиям) на Архиваче: 1.0, 2.0, 2.1, [2.2](https://arhivach.cf/thread/122283/), [2.3](https://arhivach.cf/thread/174295/), [2.4](https://arhivach.cf/thread/203033/), [2.5](http://arhivach.cf/thread/240309/), [2.5.1](http://arhivach.cf/thread/266885/), [2.6.1](https://arhivach.cf/thread/307514/), [2.7]( https://arhivach.cf/thread/307514/)
+  * Архивы тредов (по версиям) на MediaFire: 1.0, 2.0, 2.1, [2.2](http://www.mediafire.com/?u10qilq5oegw0km), [2.3](http://www.mediafire.com/?bik9j862dk6gmqi), [2.4](http://www.mediafire.com/?xh9gf8zqbb26cig), [2.5](http://www.mediafire.com/?1eudpg51g8rbins), [2.5.1](https://www.mediafire.com/?a48lyv858sxvcso), [2.6.1](https://www.mediafire.com/?kct00qopanzp91t), [2.7](https://www.mediafire.com/?mmqnd563651tx27), 2.8
+  * Архивы тредов (по версиям) на Архиваче: 1.0, 2.0, 2.1, [2.2](https://arhivach.cf/thread/122283/), [2.3](https://arhivach.cf/thread/174295/), [2.4](https://arhivach.cf/thread/203033/), [2.5](http://arhivach.cf/thread/240309/), [2.5.1](http://arhivach.cf/thread/266885/), [2.6.1](https://arhivach.cf/thread/307514/), [2.7](https://arhivach.cf/thread/343936/), [2.8](https://arhivach.cf/thread/343936/391527/)
   * Текстовый (_lite_) архив всех официальных тредов (за исключением текущего): [MediaFire](http://www.mediafire.com/?umpa1gbunc2uuz7), [Mega.nz](https://mega.nz/#!zQZnkS7S!S9fJaPaWAPjWKftKDyf55IXctBRp0fVk9hcmxs-Ta-c)
   * [Архивы официальных тредов на Mega.nz](https://mega.nz/#F!vY5h2bxB!zw0o2i4czJqVl0OxlNJL1g)
 * __[Коротких анимаций тред](A.md)__
