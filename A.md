@@ -7,16 +7,16 @@
 Архивы предыдущих тредов:
 
 >>193844 [b]Анимаций тред #3[/b]
-http://www.mediafire.com/......
-[spoiler]http://arhivach.ng/thread/....../[/spoiler]
+https://www.mediafire.com/......
+[spoiler]https://arhivach.ng/thread/....../[/spoiler]
 
 >>147782 [b]Коротких анимаций тред #2[/b]
 https://www.mediafire.com/?32n3q044uhhdhh7
 [spoiler]https://arhivach.ng/thread/335101/[/spoiler]
 
 >>92665 [b]Анимаций тред всех полов #1[/b]
-http://www.mediafire.com/?hmkjnvtgpxvxtts
-[spoiler]http://arhivach.org/thread/122270/[/spoiler]
+https://www.mediafire.com/?hmkjnvtgpxvxtts
+[spoiler]https://arhivach.org/thread/122270/[/spoiler]
 
 Зеркало всех тредов на Меге:
 https://mega.nz/#F!6VpgSIaC!ql_jPT1lHjdC-oWsp_GCxQ
