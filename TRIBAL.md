@@ -10,7 +10,7 @@
 https://www.mediafire.com/?...
 [spoiler]https://arhivach.ng/thread/.../[/spoiler]
 
->>44191 [b]Древние цивилизации #1[/b]
+[b]Древние цивилизации #1[/b]
 https://www.mediafire.com/?kxa7aup3tk20sv1
 [spoiler]https://arhivach.ng/thread/229143/[/spoiler]
 
