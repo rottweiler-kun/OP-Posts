@@ -18,11 +18,11 @@ https://www.mediafire.com/?mpyowmmlsvk78qt
 
 [b]BDSM #4[/b]
 https://www.mediafire.com/?dtajw7vm9t4x4b5
-[spoiler]http://arhivach.ng/thread/305923/[/spoiler]
+[spoiler]https://arhivach.ng/thread/305923/[/spoiler]
 
 [b]BDSM #3[/b]
 https://www.mediafire.com/?4jx7cept28821c9
-[spoiler]http://arhivach.ng/thread/122272/[/spoiler]
+[spoiler]https://arhivach.ng/thread/122272/[/spoiler]
 
 [b]BDSM #2[/b]
 https://www.mediafire.com/?t6612afy1lyatc7
@@ -30,7 +30,7 @@ https://www.mediafire.com/?t6612afy1lyatc7
 
 [b]BDSM #1[/b]
 https://www.mediafire.com/?phxb62cbi96fn6d
-[spoiler]http://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html[/spoiler]
+[spoiler]https://web.archive.org/web/20121028113450/http://2ch.hk/fur/res/55394.html[/spoiler]
 
 Архив всех тредов на Меге:
 https://mega.nz/#F!KUZ01ZLD!JL-YJE_9KdS9kl-5rmvQ8A
