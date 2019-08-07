@@ -1,4 +1,4 @@
-# Clean Thread #7
+# Clean Thread #8
 
 ```
 
@@ -8,25 +8,26 @@
 
 Архивы предыдущих тредов:
 
+
 >>188371 [b]Clean тред #7[/b]
 https://www.mediafire.com/?...
-[spoiler]http://arhivach.ng/thread/....../[/spoiler]
+[spoiler]https://arhivach.ng/thread/....../[/spoiler]
 
 >>149756 [b]Clean тред #6[/b]
 https://www.mediafire.com/?k8tz5j1ta9ls95i
-[spoiler]http://arhivach.ng/thread/325230/[/spoiler]
+[spoiler]https://arhivach.ng/thread/325230/[/spoiler]
 
 [b]Clean тред #5[/b]
 https://www.mediafire.com/?vdntftobn3v4krw
-[spoiler]http://arhivach.ng/thread/256499/[/spoiler]
+[spoiler]https://arhivach.ng/thread/256499/[/spoiler]
 
 [b]Clean тред #4[/b]
-http://www.mediafire.com/?ud76kcwnws4fw4s
-[spoiler]http://arhivach.ng/thread/190144/[/spoiler]
+https://www.mediafire.com/?ud76kcwnws4fw4s
+[spoiler]https://arhivach.ng/thread/190144/[/spoiler]
 
 [b]Clean тред #3[/b]
 https://www.mediafire.com/?popirqw0y9qu7vb
-[spoiler]http://arhivach.ng/thread/122273/[/spoiler]
+[spoiler]https://arhivach.ng/thread/122273/[/spoiler]
 
 [b]Clean тред #2[/b]
 https://www.mediafire.com/?4nv2o8baoax2qc4
