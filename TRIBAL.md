@@ -1,19 +1,18 @@
 # Древних цивилизаций и первобытных племён тред #3
 
 ```
-
 Постим фурей в первобытнообщинном, древнеегипетском, античном, мезоамериканском, аборигенском и прочем древне[spoiler] и не только [/spoiler]историческом антураже. К разврату и наготе ИТТ относимся терпимо - что естественно, то не безобразно.
 Представителей культурного европейского Средневековья и любителей фентези приглашаем в дружественный тред >>111888
 
 Архивы предыдущих тредов:
 
 >>143815 [b]Древних цивилизаций и первобытных племён тред #2[/b]
-http://www.mediafire.com/?...
-[spoiler]http://arhivach.cf/thread/....../[/spoiler]
+https://www.mediafire.com/?...
+[spoiler]https://arhivach.ng/thread/.../[/spoiler]
 
 >>44191 [b]Древние цивилизации #1[/b]
-http://www.mediafire.com/?kxa7aup3tk20sv1
-[spoiler]http://arhivach.cf/thread/229143/[/spoiler]
+https://www.mediafire.com/?kxa7aup3tk20sv1
+[spoiler]https://arhivach.ng/thread/229143/[/spoiler]
 
 Архивы всех тредов на Меге: https://mega.nz/#F!mF4CTZyQ!cPxmWQq_i9g0TfIxtBV0aA
 ```
