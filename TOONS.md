@@ -4,18 +4,18 @@
 
 Филиал [b]/c[/b] на фуряче. Обсуждаем мультики и мультсериалы [spoiler]и аниме[/spoiler] с животными в главных ролях (антропоморфными и феральными).
 [spoiler]Зоотопия обзавелась собственными бесчисленными тредами в [b]/fur[/b], [b]/c[/b], [b]/fet[/b] и [b]/b[/b][/spoiler].
-Короткие анимашки, сделаные фурями для фурей или вырезаные непонятно откуда, постим здесь >>147782
+Короткие анимашки, сделаные фурями для фурей или вырезаные непонятно откуда, постим здесь >>193844
 В прошлых тредах внимания удостоились много годных и не очень мультов, рекомендуется полуркать архивы [spoiler]спискоты не будет ибо на самом деле овердохуя[/spoiler]
 
 Архивы предыдущих тредов:
 
 >>162091 [b]Мультиков и сериалов тред #2[/b]
-http://www.mediafire.com/?...
-[spoiler]http://arhivach.cf/thread/....../[/spoiler]
+https://www.mediafire.com/?...
+[spoiler]https://arhivach.ng/thread/....../[/spoiler]
 
->>84663 [b]Анимации тред #1[/b]
-http://www.mediafire.com/?z4z4a5tr2qcg8ra
-[spoiler]http://arhivach.cf/thread/50757/[/spoiler]
+[b]Анимации тред #1[/b]
+https://www.mediafire.com/?z4z4a5tr2qcg8ra
+[spoiler]https://arhivach.ng/thread/50757/[/spoiler]
 
 Архивы всех тредов на Меге: https://mega.nz/#F!WVBHjbRC!j07xBaWP7uxWQfWxTI_Emw
 
