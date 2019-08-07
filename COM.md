@@ -4,20 +4,21 @@
 Тред обсуждения комиксов номер три.
 В треде обсуждаем годные [spoiler]и не очень[/spoiler] обычные комиксы, BD и веб-комиксы. Делимся впечатлениями, пишем рецензии, не забываем давать ссылки.
 
-Большой список фурри-комиксов: http://new.belfrycomics.net/view/all/Show+All
-Годная спискота на тропах [spoiler]могут попадаться спойлеры[/spoiler]: http://tvtropes.org/pmwiki/pmwiki.php/Main/FurryWebcomics 
+Большой список фурри-комиксов: https://new.belfrycomics.net/view/all/Show+All
+Годная спискота на тропах [spoiler]могут попадаться спойлеры[/spoiler]: https://tvtropes.org/pmwiki/pmwiki.php/Main/FurryWebcomics 
 
 Архивы предыдущих тредов:
-
 >>115958 [b]Веб-комиксов и простокомиксов тред #2[/b]
 https://www.mediafire.com/?...
 https://www.mediafire.com/?... (light version)
-[spoiler]https://arhivach.cf/thread/...[/spoiler]
+[spoiler]https://arhivach.ng/thread/...[/spoiler]
 
 >>112040 [b]Веб-комиксов и простокомиксов тред #1[/b]
-https://www.mediafire.com/?u85gavck2dma9rj 
+https://www.mediafire.com/?u85gavck2dma9rj
 https://www.mediafire.com/?6mdkx2m15xab81e (light version)
-[spoiler]http://arhivach.cf/thread/144197/[/spoiler]
+[spoiler]http://arhivach.ng/thread/144197/[/spoiler]
+
+Архив всех тредов на Mega.nz: https://mega.nz/#F!nUwViQpS!QZKhRcUItwdicPaa6K4lDA
 ```
 ___
 ```
@@ -137,5 +138,15 @@ Table of contents второго треда >>115958 часть 3 из ?
 >>173773 Save it for the Bedroom
 >>173853 LOVE
 >>176613 Out-of-placers
+>>180526 Gab Shiba
+>>186150 Stars End
+>>189168 Exit Stage Left: The Snagglepuss Chronicles
+>>189241 Oink - Heavens Butcher
+>>189473 Jack Wolfgang 
+>>189476 Forest Hunt
+>>189873 Scurry 
+>>190125 Mulo 
+>>192146 >>192147 >>192148 >>192149 Pixie and Brutus 
+>>194913 "Creep" by Roz Gibson & Dave Hopkins
 >>.....
-
+```
