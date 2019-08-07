@@ -41,7 +41,9 @@ https://videos.toypics.net - учебные материалы по правил
 http://pornolab.net/forum/viewtopic.php?t=2332645 magnet:?xt=urn:btih:9F7001BA954DE27231D99379B8217F5E7DE55775 - практические занятия для подгруппы кунов.
 http://pornolab.net/forum/viewtopic.php?t=2338275 magnet:?xt=urn:btih:0980BEC5518588CA9AE07ECA1284503D01EC5929 - практические занятия для подгруппы тянов.
 Разные гайды из /hc: [spoiler] https://pastebin.com/fcZzua9K https://pastebin.com/hwhGL66a https://pastebin.com/yRcMEZJm [/spoiler]
+```
 
+```
 Архивы предыдущих тредов:
 
 >>184406 [b]Секс-игрушек тред #9[/b]
@@ -62,23 +64,23 @@ https://www.mediafire.com/?cujlqwzkl48ccis (текстовая версия)
 
 >>159307 [b]Секс-игрушек тред #5[/b]
 https://www.mediafire.com/?7v0i76ri6pqzpab
-[spoiler] http://arhivach.ng/thread/320310/ [/spoiler]
+[spoiler] https://arhivach.ng/thread/320310/ [/spoiler]
 
 [b]Секс-игрушек тред #4[/b]
 https://www.mediafire.com/?d0oeq901wdvytqm
-[spoiler] http://arhivach.ng/thread/292961/ [/spoiler]
+[spoiler] https://arhivach.ng/thread/292961/ [/spoiler]
 
 [b]Секс-игрушек тред #3[/b]
 https://www.mediafire.com/?4gxnlh11bywjt7d
-[spoiler] http://arhivach.ng/thread/271354/ [/spoiler]
+[spoiler] https://arhivach.ng/thread/271354/ [/spoiler]
 
 [b]Секс-игрушек тред #2[/b]
-http://www.mediafire.com/?hi4h7lh5qlaiqqo
-[spoiler] http://arhivach.ng/thread/207822/ [/spoiler]
+https://www.mediafire.com/?hi4h7lh5qlaiqqo
+[spoiler] https://arhivach.ng/thread/207822/ [/spoiler]
 
 [b]ОЧЕНЬ НАДО[/b]
-http://www.mediafire.com/?d63d7yj1e3uvne1
-[spoiler] http://arhivach.ng/thread/165088/ [/spoiler]
+https://www.mediafire.com/?d63d7yj1e3uvne1
+[spoiler] https://arhivach.ng/thread/165088/ [/spoiler]
 
 Зеркало всех тредов на Меге: https://mega.nz/#F!eMJilZZQ!Fxow6RuB9UUPwfJBZa4jng
 ```
