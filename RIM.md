@@ -8,6 +8,6 @@
 Архивы предыдущих тредов:
 
 >>108405 [b]Rimming тред #1[/b]
-http://www.mediafire.com/?...
-[spoiler]https://arhivach.cf/thread/....../[/spoiler]
+https://www.mediafire.com/?...
+[spoiler]https://arhivach.ng/thread/....../[/spoiler]
 ```
