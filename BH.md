@@ -13,7 +13,7 @@ https://www.mediafire.com/?...
 https://www.mediafire.com/?6mdxhrzgw75432w
 [spoiler]https://arhivach.ng/thread/325226/[/spoiler]
 
->>134259 [b]ФУРРИ БУГУРТ ТРЕД #2[/b]
+[b]ФУРРИ БУГУРТ ТРЕД #2[/b]
 https://www.mediafire.com/?zdp04lr0bw44qlc
 [spoiler]https://arhivach.ng/thread/284411/[/spoiler]
 
